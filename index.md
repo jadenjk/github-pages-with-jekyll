@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Ohana Nashville
 
-I'm glad you are here. I plan to talk about ...
+Authentic Hawaiian right here in Music City!
